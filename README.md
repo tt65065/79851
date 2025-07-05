@@ -20,4 +20,4 @@
 
 我们建议你将本站收藏到浏览器书签，每天回访查看最新上线影片。这里不仅有海量免费资源，还有安全、稳定、无干扰的看片环境，是目前真正值得信赖的日本AV免费在线观看平台。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/tt65065/79851 ）</span>
